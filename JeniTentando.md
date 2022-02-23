@@ -1,0 +1,1 @@
+Pelo amor de Deus, precisava ser tão difícil?
